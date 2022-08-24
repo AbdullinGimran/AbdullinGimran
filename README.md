@@ -1,5 +1,5 @@
-- 👋 Hi, I’m @AbdullinGimran
+- 👋 Hi, I’m @bshkrt
 - 👀 I’m interested in competitive programming
-- 🌱 I’m currently learning algorithms
+- 🌱 I’m currently solving problems
 - 💞️ I’m looking to collaborate on ВКОШП
 - 📫 How to reach me codeforces.com/profile/bashkort
