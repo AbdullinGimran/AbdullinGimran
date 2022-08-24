@@ -2,4 +2,4 @@
 - 👀 I’m interested in competitive programming
 - 🌱 I’m currently learning algorithms
 - 💞️ I’m looking to collaborate on ВКОШП
-- 📫 How to reach me codeforces.com/bashkort
+- 📫 How to reach me codeforces.com/profile/bashkort
