@@ -1,2 +1,4 @@
 - 👋 Hi, I’m Abdullin Gimran
-- 💞️ I’m looking to collaborate on ВКОШП
+- 😔 I've never touched a woman
+- 🤩 Getting ready for the ROI
+- 
