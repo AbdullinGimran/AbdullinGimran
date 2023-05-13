@@ -1,3 +1,3 @@
 - 👋 Hi, I’m Gimran Abdullin
-- 😔 I've never touched a woman
+- 😔 Not LGM yet
 - 🤩 Getting ready for the ROI Summer Camp
