@@ -1,3 +1,3 @@
 - 👋 Hi, I’m Gimran Abdullin
 - 😔 Not LGM yet
-- 🤩 Getting ready for the ROI Summer Camp
+- 🤩 Getting ready for the IOI 2023
